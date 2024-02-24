@@ -1,2 +1,1 @@
-# gathanandhika.github.io
 
